@@ -1,0 +1,2 @@
+# JDI
+Game dỡ vl
